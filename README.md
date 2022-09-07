@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HARIBRAHMA
+- 👋 Hi, I’m @HARIBRAHMA REDDY PITTU
 - 👀 I’m interested in ...Biotechnology, Drug Discovery and Biopharma 
 - 🌱 I’m currently learning ...To create Medicare 
 - 💞️ I’m looking to collaborate on ...
